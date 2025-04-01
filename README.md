@@ -1,3 +1,1 @@
-the best eaglercraft launcher ever!!
-
-made by roosethemoose
+eaglercraft information page unblocked for chromebook
